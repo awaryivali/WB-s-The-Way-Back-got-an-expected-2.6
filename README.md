@@ -1,0 +1,5 @@
+WB's The Way Back got an expected $2.6 million and is relied upon to acquire $8+ million for the three-day. The film got a "B+" CinemaScore from first day of the season crowds. 
+
+Center's Emma extended cross country this end of the week, presently playing in 1,565 areas from which it got an expected $1.65 million on Friday. The film is relied upon to top $5 million for the three-day and got a "B" CinemaScore from Friday crowds. 
+
+<p><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-1917-2019-full-online-free-hd">Watch 1917 Online</a><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-fast-and-furious-presents-hobbs-and-shaw-2019-full-online-free-hd"><br>Watch Fast and furious presents hobbs and shaw Online</a><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-five-feet-apart-2019-full-online-free-hd"><br>Watch Five feet apart Online</a><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-frozen-ii-2019-full-online-free-hd"><br>Watch Frozen ii Online</a></p>
